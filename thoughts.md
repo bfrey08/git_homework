@@ -2,3 +2,5 @@ Two take aways that I have had since starting Mod 0. Firstly, success is going t
 
 Two new strategies I am committed to trying during the rest of Mod0. First is scheduling my time via the Calendar. The second is utilizing POM breaks during my own work.
 Shoutout to Sam D! I'm currently working next to him and we've been able to bounce ideas/concepts against each other.
+
+Shoutout to Delilah N. for being a great session 3 breakout room partner!
